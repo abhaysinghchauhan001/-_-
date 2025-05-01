@@ -3,7 +3,7 @@ Best Smart Artificial intelligence Chat bot For Telegram Groups
 Click Below Picture To Open Nobita Chat Bot Owner Id...
 
 
-<p align="center"><a href="https://t.me/ll_YOURR_NOBITA_ll"><img src="https://graph.org/file/d635f0a8aac8a680790f0-8c0d445fbeac353450.jpg"></a></p>
+<p align="center"><a href="https://t.me/ll_YOURR_NOBITA_ll"><img src="https://files.catbox.moe/7qyorb.jpg"></a></p>
 
 
 
